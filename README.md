@@ -1,3 +1,3 @@
 # Linus Harde
-# Job Experience 
-- working student in IT-Consulting (bpcAG)
+# Job experience 
+- Working Student in IT-Consulting, bpcAG 
